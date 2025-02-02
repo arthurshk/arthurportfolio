@@ -1,2 +1,2 @@
 Check it out [here](https://arthurshk.github.io/arthurportfolio/)
-![skills](https://github.com/user-attachments/assets/99b3a749-e7f5-4446-a51f-db393a2e5e75)
+![Skills)](https://github.com/user-attachments/assets/fdb44500-3f8b-4330-95e4-30aa682c64b4)
